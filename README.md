@@ -2,7 +2,7 @@
 - 👀 I’m interested in you
 - 🌱 I’m currently learning you
 - 💞️ I’m looking to collaborate on you
-- 📫 How to reach me me
+- 📫 How to reach me good
 - 😄 Pronouns: Aru
 - ⚡ Fun fact: I Love Myself
 
